@@ -1,6 +1,6 @@
 # Krunker-Plus-X
 Krunker Hax (Auto Bhop TEST VERSION)
->`Krunker.io Hack v2.5. ✔️`
+>`Krunker.io Hack v2.5.2 ✅
 __________________________________
 >**KRUNKER JAVA Plus X** 
 - I'm Making Free Krunker Hax and .io Games Hack for .io Games Hacker
